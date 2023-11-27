@@ -1,5 +1,5 @@
 # Avatar: The Last Airbender
-**Synopsis**
+**Synopsis:**
 A century ago, young Avatar Aang, afraid of his new responsibilities, fled from his home and was forced into the ocean by a storm. He encased himself and his sky bison Appa in suspended animation in an iceberg near the South Pole. Shortly afterward, Fire Lord Sozin, the ruler of the Fire Nation, launched a world war to expand his nation's empire. Knowing that the Avatar must be an Air Nomad, he carried out a genocide against the Air Nomads, which he timed with the arrival of a comet that gives firebenders tremendous power. A hundred years later, siblings Katara and Sokka, teenagers of the Southern Water Tribe, accidentally discover Aang and revive him.
 
 In the first season, Aang travels with Katara and Sokka to the Northern Water Tribe so he can learn waterbending and be prepared to defeat the Fire Nation. Prince Zuko, the banished son of the current Fire Lord Ozai, pursues them, accompanied by his uncle Iroh, hoping to capture the Avatar in order to restore his honor. Aang is also pursued by Zhao, a Fire Nation admiral aspiring to win Ozai's favor. When his navy attacks the Northern Water Tribe, Zhao kills the moon spirit; Yue, the princess of the tribe, sacrifices her life to revive it, and Aang drives off the enemy fleet.
